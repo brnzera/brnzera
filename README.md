@@ -13,7 +13,7 @@
 
 - 📫 Como entrar em contato comigo **brenoulira@gmail.com**
 
-- ⚡ Curiosidade **Eu ❤️ Futebol ❤️ Apostas Esportivas ❤️**
+- ⚡ Curiosidade **Eu ❤️ Academia**
 
 <h3 align="left">Conecte-se comigo:</h3>
 <p align="left">
